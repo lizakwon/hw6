@@ -9,3 +9,5 @@
 ![](https://pp.userapi.com/c845220/v845220509/16e3e/fgAX0Lwyq6k.jpg)
 
 ![](https://pp.userapi.com/c834303/v834303201/10a3a3/JSLPSNRsZ7E.jpg)
+
+оба глагола могут употребляться с "hazel", только с "answer" может употребляться "question", с "reply" "endill"

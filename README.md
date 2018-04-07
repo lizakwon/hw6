@@ -4,7 +4,7 @@
 
 ![](https://pp.userapi.com/c845220/v845220509/16dfd/QXrZM-ZFLRA.jpg)
 
-![](https://pp.userapi.com/c845220/v845220509/16e37/XL6zC7M_SYA.jpg)
+![](https://pp.userapi.com/c847017/v847017843/1c83e/lKXIZvVWbNw.jpg)
 
 ![](https://pp.userapi.com/c845220/v845220509/16e3e/fgAX0Lwyq6k.jpg)
 
